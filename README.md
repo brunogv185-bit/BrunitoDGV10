@@ -1,4 +1,4 @@
-![240050198](https://github.com/user-attachments/assets/3a4ffc1f-f44a-4bff-b7cd-a56d8d359a58)
+![240050198](https://github.com/user-attachments/assets/98caaaf8-be9a-4963-97a5-7deb7762c94b)
 # hello there, everyone this is BrunitoGV10 {{Dooeon Kwon}}
 - HE / HIM
 - youtube: [https://www.youtube.com/channel/UCCme__sKWZ-lDhskVg_2j1g](https://www.youtube.com/@brunitogv_10)
