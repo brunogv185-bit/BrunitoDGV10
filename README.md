@@ -1,4 +1,4 @@
-<img width="512" height="512" alt="Image2.jpg" src="[https://github.com/user-attachments/assets/3d93dd52-ca39-4831-b1bb-342e15e1c434](https://avatars.githubusercontent.com/u/240050198?v=4)" />
+<img width="1080" height="1080" src="[https://github.com/user-attachments/assets/3d93dd52-ca39-4831-b1bb-342e15e1c434](https://avatars.githubusercontent.com/u/240050198?v=4)" />
 # hello there, everyone this is BrunitoGV10 {{Dooeon Kwon}}
 - HE / HIM
 - youtube: [https://www.youtube.com/channel/UCCme__sKWZ-lDhskVg_2j1g](https://www.youtube.com/@brunitogv_10)
